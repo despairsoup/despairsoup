@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @despairsoup
 - 👀 I’m interested in Homestuck, alternative subcultures, and politics
-- 🌱 I’m currently learning how to code w/o blocks
+- 🌱 I’m currently learning java script
 - 💞️ I’m looking to collaborate on Homestuck related shit mostly
 - 📫 How to reach me is in my bio
