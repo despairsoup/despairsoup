@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @despairsoup
-- 👀 I’m interested in Homestuck and thats it I have autism aha
-- 🌱 I’m currently learning java script
-- 💞️ I’m looking to collaborate on Homestuck related shit mostly
-- 📫 How to reach me is in my bio
+- 👀 I’m interested in kpop and suicide squad
+- 🌱 I’m currently employed
+- 💞️ I’m looking to collaborate pipe dreams
+- 📫 https://unikittyofficial.straw.page
